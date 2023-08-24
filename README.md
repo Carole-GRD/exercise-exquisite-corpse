@@ -12,6 +12,9 @@ La sorcière nous dit alors : Puisque c'est comme ça, je vais vous jeter un sor
 Dans notre course, nous n'avons pas remarqué le gigantesque ourson en gelée au milieu de la route, mais le choc fut amorti par la gelée. La sorcière s'arrêta net devant le gentil ourson, devint encore plus blanche qu'avant. L'ourson tendit la main vers la sorcière, l'avala tout entière avec un grand sourire, et tout finit bien.
 
 
+FIN 
+
+
 
 
 
