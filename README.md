@@ -11,3 +11,5 @@ Nous répondimes: Votre forêt? Mais c'est la forêt de tout le monde ici, nous 
 
 La sorciere nous dit alors: Puisque c'est comme ça, je vais vous jeter un sort!
 Elle sortit sa baguette magique et commença son incantation. Nous primes alors nos jambes à nos cous! Hors de question de rester là!
+
+Dans notre course nous n'avons pas remarqué le gigantesque ourson en gelée au millieu de la route mais le choc fut amorti par la gelée. La sorcière s'arrêta net devant le gentil nourson et devint encore plus blanche qu'avant. L'ourson tendit la main vers la sorcière et l'avala toutre entière avec un grand sourire, et tout finit bien.
