@@ -7,3 +7,7 @@ Tout à coup, un bruit sourd retenti dans la maison! Léo me saisit le bras et s
 On vit apparaitre une énorme et laide sorcière avec son balai magique et un chat sur l'épaule. Celui-ci était noir avec de grands yeux vert.
 La sorcière dit ainsi: Que faites-vous ici? Pourquoi essayez-vous de construire une maison dans ma forêt?
 Nous répondimes: Votre forêt? Mais c'est la forêt de tout le monde ici, nous venons ici depuis des années!
+
+
+La sorciere nous dit alors: Puisque c'est comme ça, je vais vous jeter un sort!
+Elle sortit sa baguette magique et commença son incantation. Nous primes alors nos jambes à nos cous! Hors de question de rester là!
